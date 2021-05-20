@@ -1,3 +1,3 @@
-20212972	 Kimminchan
+20212972 - Kimminchan
 
 Kookmin Univ.SW
